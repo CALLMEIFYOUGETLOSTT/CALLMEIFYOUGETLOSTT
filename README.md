@@ -1,5 +1,4 @@
-when you and bro accidentally say the same thing at the same time so you guys lowk kiss
-<p align="center"> <img width="500" src="https://imgur.com/vimXXfo.jpeg"
+ii lovee laarrpiiing
 
 <!--
 **CALLMEIFYOUGETLOSTT/CALLMEIFYOUGETLOSTT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
